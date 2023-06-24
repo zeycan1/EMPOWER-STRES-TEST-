@@ -18,7 +18,7 @@ empowerd tx plasticcredit transfer sizincuzdan gidecekcuzdan PCRD/PCRD/1010 1 fa
 
 ## ![image](https://github.com/zeycan1/EMPOWER-STRES-TEST-/assets/108004368/9ffebb61-34b3-46dc-8670-7beafa864b11)
 
-## Ağı spamladıktan sonra yine görev formumuzu dolduruyoruz k,i ödülümüzü alabilelim. 
+## Ağı spamladıktan sonra yine görev formumuzu dolduruyoruz ki ödülümüzü alabilelim. 
 
 ## https://forms.gle/XPt6hPwx8amy7DmDA
 
